@@ -2,7 +2,7 @@
 - 👀 I’m interested in Pineapples
 - 🌱 I’m currently learning Pineapples
 - 💞️ I’m looking to collaborate on Pineapples
-- 📫 How to reach me SeePineapple@gmail.com
+- 📫 How to reach me SeePineapples@gmail.com
 - 😄 Pronouns: Pineapple
 - ⚡ Fun fact: I am a cannabal
 
